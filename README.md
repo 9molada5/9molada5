@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @9molada5
+- 👋 Hi, I’m faridat omolade 
 - 👀 I’m interested in articles relating to UI/UX
 - 🌱 I’m currently learning UX Design 
 - 💞️ I’m looking to collaborate on this site
